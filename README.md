@@ -1,4 +1,3 @@
-
 <html>
 <head>
 <title>porn69kuni</title>
@@ -15,13 +14,14 @@ text="white">
 <li><img src="image/4.jpg" alt="твои родители случайно не производители котлеты?"></li>
 <li><img src="aaa/ooo.png" alt="твои родители случайно не производители котлеты?"></li>
 <li><a href="https://vk.com/luciferizada">главная</a></li>
-<li><a href="http://www.xvideos.com/video56429697/i_am_home_alone_come_rampage_my_ass">для ааи</a></li>
+<li><a href="http://www.xvideos.com/video56429697/i_am_home_alone_come_rampage_my_ass">для настюши</a></li>
 <li><a href="https://24video.ws/embedPlayer/946387">хентай</a></li>
 </u1>
 <div class="main">
-<h1>привет а</h1>
-<b>пвапвапв</b>
-<p>салам.</p>
+<h1>привет настена, сластена </h1>
+<b>дрочи на здоровье</b>
+<p>твой дорогйо сережа</p>
 </div>
 </body>
 </html>
+
